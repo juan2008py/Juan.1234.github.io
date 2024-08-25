@@ -7,4 +7,4 @@
 
 Aparte de mi interés en la tecnología, disfruto improvisar ensayos y exposiciones, y me esfuerzo por usar un lenguaje sencillo y claro en mis presentaciones. En mi tiempo libre, me gusta escuchar música relajante y explorar nuevas ideas relacionadas con el desarrollo web.
 
-Estoy comprometido en sacar lo mejor de mí mismo y continuar aprendiendo para lograr mis objetivos futuros. Si compartes mi pasión por la tecnología o estás interesado en colaborar en proyectos, ¡no dudes en contactarme
+Estoy comprometido en sacar lo mejor de mí mismo y continuar aprendiendo para lograr mis objetivos futuros. Si compartes mi pasión por la tecnología o estás interesado en colaborar en proyectos, ¡no dudes en contactarme https://linktr.ee/manu.juan.com
